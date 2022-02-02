@@ -1,1 +1,1 @@
-My name is Drake Cody and I am a finance and business analytics major at Baylor University. I mainly program in python but do know several other languages. If you are interested in learning more about my projects or would like to collaborate, please reach out on linkedin. https://www.linkedin.com/in/drake-cody-0a1001125/. 
+I am a finance and business analytics major at Baylor University. Please connect with me on linkedin if you find any of my projects interesting.  https://www.linkedin.com/in/drake-cody-0a1001125/. 
